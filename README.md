@@ -23,4 +23,4 @@ Se você estiver interessado em colaborar, discutir projetos ou apenas bater um 
 - [LinkedIn](https://www.linkedin.com/in/larissa-iovanovich/)
 - [Email](lariiovanovich@gmail.com)
 
-Vamos construir algo incrível juntos! 🚀
+
